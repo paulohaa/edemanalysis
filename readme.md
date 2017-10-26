@@ -1,1 +1,1 @@
-"arquivo com orienta‡äes gerais" 
+arquivo com orientações gerais 
